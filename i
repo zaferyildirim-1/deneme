@@ -1,0 +1,1 @@
+izafer denemeye doyamadu
